@@ -7,6 +7,6 @@ I currently study the 7th semester of Biomedical Engineering at Universidad Aut�
 
 Barely have I free time to do other things out of university, but what I like is to learn about everything. I’ve been studying french for two years know and it’s become my passion, and I also really love Biology so I like to read a lot about it, specially Neurology, and I enjoy to attend some congresses and symposiums.
 
-Because of my career, there are a lot of topics I am interested at… Nanotechnolgy, Administration and Technolgy Management, Artificial Intelligence and, Image and Signal Processing.
+Because of my career, there are a lot of topics I am interested on… Nanotechnolgy, Administration and Technolgy Management, Artificial Intelligence and, Image and Signal Processing.
 
 I like photography, not professionally but spontaneously.
